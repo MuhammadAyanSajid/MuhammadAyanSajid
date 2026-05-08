@@ -2,7 +2,7 @@
 
 # Hi there, I'm Muhammad Ayan Sajid! 👋
 
-### 3rd Semester BSCS Student @ UET Lahore
+### 4th Semester BSCS Student @ UET Lahore
 
 <br/>
 
